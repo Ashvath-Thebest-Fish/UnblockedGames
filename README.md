@@ -1,2 +1,0 @@
-# UnblockedGames
-Kinard Unblocked Games
